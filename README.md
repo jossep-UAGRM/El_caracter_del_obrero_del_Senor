@@ -6,5 +6,5 @@ Estas son algunas lecciones que todo obrero del Señor experimentado ha comprend
 2. [[Amar a todos los seres humanos]]
 3. [[Estar dispuesto a sufrir]]
 4. [[Golpear el cuerpo y ponerlo en servidumbre]]
-[[Ser diligentes]]
+5. [Ser diligentes]
 
