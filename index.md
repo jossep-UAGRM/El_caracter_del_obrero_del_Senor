@@ -4,8 +4,8 @@ La vida intima esta relacionada con la obra. Y alguien es apto se determina seg√
 
 Estas son algunas lecciones que todo obrero del Se√±or experimentado ha comprendido y asimilado
 
-1. [Saber Escuchar a otros][site/Saber Escuchar a otros]
-2. [[Amar a todos los seres humanos]]
-3. [[Estar dispuesto a sufrir]]
-4. [[Golpear el cuerpo y ponerlo en servidumbre]]
-5. [[Ser diligentes]]
+1. [Saber Escuchar a otros](site/Saber Escuchar a otros.md)
+2. [Amar a todos los seres humanos](site/Amar a todos los seres humanos.md)
+3. [Estar dispuesto a sufrir](site/Estar dispuesto a sufrir.md)
+4. [Golpear el cuerpo y ponerlo en servidumbre](site/Golpear el cuerpo y ponerlo en servidumbre.md)
+5. [Ser diligentes](site/Ser diligentes.md)
