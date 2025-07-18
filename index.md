@@ -9,4 +9,4 @@ Estas son algunas lecciones que todo obrero del Señor experimentado ha comprend
 3. [[Estar dispuesto a sufrir]]
 4. [[Golpear el cuerpo y ponerlo en servidumbre]]
 5. [[Ser diligentes]]
-2. [Saber Escuchar a otros] (site/Saber Escuchar a otros.md)
+2. [Saber Escuchar a otros](site/Saber Escuchar a otros.md)
