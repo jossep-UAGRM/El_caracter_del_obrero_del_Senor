@@ -2,7 +2,7 @@
 La cualidad para escuchar a otros no es para obedecer a todos sino en el sentido de captar y entender a los demás. Si solo se habla en lugar de escuchar a otros es imposible cumplir correctamente las funciones como obrero del Señor. Para ayudar a otros debemos no solo escuchar, debemos comprender sus problemas e interesarnos sinceramente por ellos. Lo que dicen, lo que no dicen y lo que ocultan en lo profundo de su Espíritu.
 
 ## PRIMERO
-### Escuchar y entender lo que nos ==dicen==
+### Escuchar y entender lo que nos <mark>dicen</mark>
 Para entender debemos ser personas tranquilas, con una mente clara y un espíritu apacible. Debemos ser como un papel blanco delante del señor. Sin prejuicios e inclinaciones para que cuando alguien exponga su caso no demos una respuesta inadecuada basada en pensamientos partidarios que se alejan de una ayuda real. Y así discernir la posición de la otra persona y la nuestra.
 ### Escuchar y entender lo que no ==nos dicen==
 Debemos aprender a discernir delante del señor lo que las personas se reservan y no declaran, siendo que cabalmente omiten lo que es mas crucial. Esto es algo muy difícil, por lo que es necesario ser disciplinado por el Señor, para tener la confianza de ayudar, exhortar o reprender a la otra persona. Por otro lado no se puede ayudar cuando se esta ansioso por hablar, teniendo la carga de hablar lo que a nosotros nos parece. De esta forma seremos personas insensibles que por el deseo de hablar no escuchamos y no ayudamos a la otra persona.
