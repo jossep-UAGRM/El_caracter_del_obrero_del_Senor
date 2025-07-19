@@ -1,13 +1,18 @@
-# Saber Escuchar a otros
-## UNO
+# SABER ESCUCHAR A OTROS
 La cualidad para escuchar a otros no es para obedecer a todos sino en el sentido de captar y entender a los demás. Si solo se habla en lugar de escuchar a otros es imposible cumplir correctamente las funciones como obrero del Señor. Para ayudar a otros debemos no solo escuchar, debemos comprender sus problemas e interesarnos sinceramente por ellos. Lo que dicen, lo que no dicen y lo que ocultan en lo profundo de su Espíritu.
 
-### Escuchar y entender lo que nos dicen
+## PRIMERO
+### Escuchar y entender lo que nos ==dicen==
 Para entender debemos ser personas tranquilas, con una mente clara y un espíritu apacible. Debemos ser como un papel blanco delante del señor. Sin prejuicios e inclinaciones para que cuando alguien exponga su caso no demos una respuesta inadecuada basada en pensamientos partidarios que se alejan de una ayuda real. Y así discernir la posición de la otra persona y la nuestra.
-### Escuchar y entender lo que no nos dicen
+### Escuchar y entender lo que no ==nos dicen==
 Debemos aprender a discernir delante del señor lo que las personas se reservan y no declaran, siendo que cabalmente omiten lo que es mas crucial. Esto es algo muy difícil, por lo que es necesario ser disciplinado por el Señor, para tener la confianza de ayudar, exhortar o reprender a la otra persona. Por otro lado no se puede ayudar cuando se esta ansioso por hablar, teniendo la carga de hablar lo que a nosotros nos parece. De esta forma seremos personas insensibles que por el deseo de hablar no escuchamos y no ayudamos a la otra persona.
-### Discernir lo que las personas dicen en su espíritu
+### Discernir lo que las personas dicen ==en su espíritu==
 Mas allá de escuchar lo que alguien expresa y lo que se reserva o guarda, debemos discernir "las palabras que habla su espíritu". Se debe aprovechar de tocar su espíritu cuando alguien esta dispuesta a hablar puesto que no solo hablara con su boca sino que también hablara con su espíritu. Esta habilidad de discernir espiritualmente dependerá de la practica en el Señor. Lo que hará que interpretemos las dificultades intelectuales y espirituales para saber cual es su verdadera enfermedad, solo entonces podemos ofrecerle el remedio preciso.
 
-## Dos
+## SEGUNDO
+### Ser ==Objetivos==
 Primeramente no debemos ser subjetivos, eso dificulta entender a los demás, porque eso nos impide ser buenos oyentes. Será difícil escuchar lo que nos dicen los demás, cuando tenemos nuestras propias ideas y conceptos preconcebidos acerca de los demás. Esto solo no nos deja cambiar de opinión porque nuestra mente estará llena de ideas propias y puntos de vista, demostrando que solo confía en si mismo, concentrado en lo que se quiere hablar. Eso termina en una imposición de diagnostico hacia los demás.
+### Ser ==Enfocados==
+En segundo Lugar nuestra mente no debe divagar. Nuestros pensamientos no deben estar sin control. Debemos aprender a restringir nuestra mente y enfocarnos. Para no tener tantas cosas en la mente al escuchar a la otra persona. Si solo hay cabida para nuestros propios pensamientos, no podremos entender como piensan los demás. Para esto es necesario disciplinarnos para silenciar la mente, estabilizarla. Para que además de ser objetivo también tenga una mente tranquila que sepa pensar como piensa el otro y descubra lo que la otra persona no esta diciendo.
+### ==Sentir== lo que sienten
+En tercer lugar es necesario poder identificarse con los sentimientos de los demás, poder entrar en ellos, ser capaz de sentir lo mismo. De lo contrario nuestra insensibilidad nos inhabilita para ayudar a otros, no importando cuanto escuchemos a los demás. Porque es necesario entender a los que se están enfrentando. Por lo que es necesario ser quebrantado por Dios para no tener endurecido los sentimientos. Para compartir el sentimiento de gozo, sufrimiento o dolor. Para ser realmente conmovido verdaderamente.
